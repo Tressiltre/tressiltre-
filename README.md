@@ -1,4 +1,4 @@
-# Hi, I'm Tressi a Cybersecurity Professional
+# Hi, I'm Tressil a Cybersecurity Professional
 
 **"Securing the present, engineering the future."**
 
